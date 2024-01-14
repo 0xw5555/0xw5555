@@ -1,7 +1,8 @@
-- 👋 Hi, I’m @0xw5555
-- 👀 looking to collaborate I’m interested in web3, design, marketing, UI/UX, robotics, space & Music.  
+- 👋 Hi, I’m @0xw5555 from beirut leboland.
+- - I’m interested in Web3, Design, Marketing, UI/UX, Robotics, Space & Techno.
+- 👀 looking to collaborate.
 - 🌱 I’m currently learning everything 😁
-- 📫 How to reach me X : @0xw5555
+- 📫 How to reach me, X : @0xw5555
 - ⚡ Fun fact: 🔮😅🚀
 
 <!---
