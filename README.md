@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @0xw5555 from beirut.
-   I’m interested in Web3, Design, Marketing, UI/UX, Robotics, Space & Techno.
+- I’m interested in Web3, Design, Marketing, UI/UX, Robotics, Space & Techno.
 - 👀 looking to collaborate.
 - 🌱 I’m currently learning everything 😁
 - 📫 How to reach me, X : @0xw5555
