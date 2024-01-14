@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @0xw5555
-- 👀 I’m interested in web3
-- 🌱 I’m currently learning everything
-- 💞️ I’m looking to collaborate 
+- 👀 looking to collaborate I’m interested in web3, design, marketing, UI/UX, robotics, space & Music.  
+- 🌱 I’m currently learning everything 😁
 - 📫 How to reach me X : @0xw5555
 - ⚡ Fun fact: 🔮😅🚀
 
